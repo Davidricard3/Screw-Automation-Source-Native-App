@@ -1,6 +1,4 @@
-# Screw Automation Machine
-
-# Calvindude
+# Screw Automation Machine Calvindude
 
 Production quality management We strictly follow the standards of double soft enterprise. The company has all kinds of processing equipment, can respond quickly according to customer needs, and guarantee the customer’s pre-sales and after-sales service.
 
